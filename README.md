@@ -13,4 +13,8 @@ Here are some ideas to get you started:
 - 📫 How to reach me: ...
 - 😄 Pronouns: ...
 - ⚡ Fun fact: ...
--->
+-->About my growth
+
+What if, three years from now, I become capable and financially independent, but lose my curiosity, my desire to express myself, and the time to explore the world and meet new people?
+
+Would that still be the growth I want?
